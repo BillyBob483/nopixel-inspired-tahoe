@@ -15,4 +15,4 @@ ________________________
 _______________________________
 
 > Be sure to join my discord - https://discord.gg/qnF2mBHAUs                                                                                                              
-> Preview - https://medal.tv/games/gta-v/clips/GOeuOzsKDQp2c/d1337YWPCwmR?invite=cr-MSxGYUgsNzA1NTg4OTQs
+> Preview - https://www.youtube.com/watch?v=v_vGq8Aw7ZM
